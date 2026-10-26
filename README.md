@@ -1,1 +1,0 @@
-# general-sponsorship-request-2026
